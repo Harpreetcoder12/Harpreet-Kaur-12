@@ -25,7 +25,6 @@
 |24/07/24|Er lakhveer Singh|give introduction about CML|
 |24/07/24|second &third year student|give information about cosmic club|
 |25/07/24|jasmeen kaur|teach us about understanding harmony in family and in the society|
-
 |25/07/24|....|introduction about college and peer interaction|
 |25/07/24|RK|maths test|
 
