@@ -27,4 +27,4 @@
 |25/07/24|jasmeen kaur|teach us about understanding harmony in family and in the society|
 |25/07/24|....|introduction about college and peer interaction|
 |25/07/24|RK|maths test|
-
+|26/07/24|Dr kanwalpreet Kaur Bhatt|tells us about the benifits of meditation|
