@@ -5,7 +5,7 @@
 11/07/24|DR ARVIND DHINGRA| motivate us about our bright future|
 |11/07/24|Dr HS Rai|get interduce with github|
 |12/07/24|sachin sir| revision of class 12th differentiation formulas |
-12/07/24|jasmeen kaur|Tell us about human values and relationships|
+12/07/24|prof.Jasmine kaur|Tell us about human values and relationships|
 |15/07/24|Dr Randhir sir|tell us about rules and regulations of college|
 |15/07/24|Dr pyare lal|Told about how decisions should be taken wisely|
 |15/07/24|Mr Sony Goyal|they teach us that never underestimate your own power and give your 100% in every work|
@@ -24,7 +24,7 @@
 |24/07/24|Mr gauravdeep singh|share their valuable thoughts and their great journey of life|
 |24/07/24|Er lakhveer Singh|give introduction about CML|
 |24/07/24|second &third year student|give information about cosmic club|
-|25/07/24|jasmeen kaur|teach us about understanding harmony in family and in the society|
+|25/07/24|prof.Jasmine kaur|teach us about understanding harmony in family and in the society|
 |25/07/24|....|introduction about college and peer interaction|
 |25/07/24|RK|maths test|
 |26/07/24|Dr kanwalpreet Kaur Bhatt|tells us about the benifits of meditation|
