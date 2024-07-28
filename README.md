@@ -22,4 +22,4 @@
 |23/07/24|third year student|Tell us about making a pamplate on canva and introduce with other features of canva|
 |23/07/24|Dr parminder Singh|give information about post matric scholarship|
 |24/07/24|Mr gauravdeep singh|share their valuable thoughts and their great journey of life|
-|25/07/24|jasmeen kaur|teach us about understanding harmony in family and |
+|25/07/24|jasmeen kaur|teach us about understanding harmony in family and in the society|
