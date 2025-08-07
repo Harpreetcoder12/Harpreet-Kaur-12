@@ -1,5 +1,5 @@
 # Harpreet-Kaur-12 
-![image][IMG_20240725_105040.jpg](https://github.com/user-attachments/assets/4bf9117d-56b7-45f8-9e3f-2e150f633762)
+![image](https://github.com/user-attachments/assets/4bf9117d-56b7-45f8-9e3f-2e150f633762)
 |Date|Name of person|Details|
 |-----|------|------|
 11/07/24|DR ARVIND DHINGRA| motivate us about our bright future|
